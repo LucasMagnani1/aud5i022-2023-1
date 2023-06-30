@@ -1,4 +1,4 @@
-Trabajo lamentablemente con Noelia Poblete y Maria Cecilia Clemente
+Trabajo con Noelia Poblete y Maria Cecilia Clemente
 
 Estoy trabajando con Antonia Noelia Poblete y Maria Cecilia Clemente
 (los avances fueron subidos por Antonia)
